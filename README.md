@@ -6,3 +6,7 @@ These data are (partially) analyzed in Borja Navarro Colorado "Some common narra
 
 All the data are freely available under [Creative Commons License Attribution-NonCommercial 3.0 Unported (CC BY-NC 3.0)](https://creativecommons.org/licenses/by-nc/3.0/).
 
+Any comment, [contact me](https://www.dlsi.ua.es/eines/membre.cgi?id=eng&nom=borja).
+
+Borja Navarro Colorado
+Unviersity of Alicante (Spain)
